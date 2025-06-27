@@ -118,7 +118,7 @@ Submission Date: 20th May, 2024
 
 Feel free to reach out for queries, collaboration, or suggestions:
 
-**Email**: smit.jayani@example.com  
+**Email**: smitjayani333@gmail.com 
 **LinkedIn**: [linkedin.com/in/smitjayani](https://linkedin.com/in/smitjayani)
 
 ---
